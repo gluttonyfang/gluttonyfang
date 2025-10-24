@@ -1,3 +1,1 @@
 ![](https://64.media.tumblr.com/2d202f47b6a6a80697f349c3c4758b46/a40cfe040ee4d239-7a/s100x200/19ebb7669a48358dab7a9abc698039e2ade5096d.gif)
-
-@tragodiaz and @ekurei will be boiled 🔜
