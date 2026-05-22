@@ -3,3 +3,4 @@
 guy who needs to remake his rentry: i need to remake my rentry
 
 if you like the mars volta be my friend NOW
+^ OCTAHEDRON BEST ALBUM ARGUE WITH A WALL ..!!!!! !!!
