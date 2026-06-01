@@ -4,8 +4,8 @@ guy who needs to remake his rentry: i need to remake my rentry
 
 if you like the mars volta be my friend NOW
 
-octahedron album haters dni ill fight you
 
 IF YOU SEE THIS AND ARE A #KNOWER Of how to add the spotify player in ur Github directory Lmk in my ata.
+
 
 i like resident evil and every other videogame that indicates some form of autism probably
