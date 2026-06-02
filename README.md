@@ -3,4 +3,3 @@
 guy who needs to remake his rentry: i need to remake my rentry
 
 if you like the mars volta be my friend NOW
-+ i like resident evil and every other videogame that indicates some form of autism probably
