@@ -3,3 +3,5 @@
 guy who needs to remake his rentry: i need to remake my rentry
 
 if you like the mars volta be my friend NOW
+
+been fond of pokemon lately
