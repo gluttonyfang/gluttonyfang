@@ -1,4 +1,4 @@
-![](https://i.imgur.com/qSC0Z1Y.png) i dont feel like formatting this correctly go my stamps
+# ![](https://i.imgur.com/qSC0Z1Y.png)  i dont feel like formatting this correctly go my stamps
 
 ![](https://i.imgur.com/8lEwsh0.png) ![](https://i.imgur.com/H2tVuJ8.gif) ![](https://i.imgur.com/ojLPlMy.jpeg) ![](https://i.imgur.com/TW9KCcd.gif) ![](https://i.imgur.com/LzIoruj.png) 
 ![](https://64.media.tumblr.com/2d202f47b6a6a80697f349c3c4758b46/a40cfe040ee4d239-7a/s100x200/19ebb7669a48358dab7a9abc698039e2ade5096d.gif) ![](https://i.imgur.com/0AAZRAY.png)
